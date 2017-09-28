@@ -7,3 +7,8 @@
 1 demie c. à café de coriandre en poudre
 1 demie c. à café de romarin
 sel, poivre noir
+
+***********************PRÉPARATION
+ÉTAPE 1Préchauffez le four th.6 (180 °C).
+ÉTAPE 2Enduisez le poulet avec les épices, le sel et l'huile, en massant bien partout.
+ÉTAPE 3Enfournez pendant 1 h 30 min.
